@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/YOM5F41.png" />
+<img src="https://imgur.com/4kRZjmX" />
 
 ## 🚀 Whaticket Plus
 
